@@ -1,9 +1,11 @@
 ## John Thomas | Marilyn Ceres 
 👋
-My name is Marilyn! I just finished my MFA, and I'm trying to get established as a technical artist or ITS specialist. I have way too many projects queued up, so I'm excited to see how it all turns out!
+My name is Marilyn! I just finished my MFA, and I'm working to establish myself as a technical artist or ITS specialist. I have way too many projects queued up, so I'm excited to see how it all turns out!
 
 LinkedIn: www.linkedin.com/in/john-thomas-2844331b5/
+
 ArtStation: https://www.artstation.com/johnethomas/profile
+
 Gumroad: https://maverick3011.gumroad.com/
 
 
